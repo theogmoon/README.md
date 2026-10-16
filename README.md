@@ -17,6 +17,9 @@ I turn raw footage into engaging videos.
 Premiere Pro, After Effects, DaVinci Resolve
 
 ## Work With Me
+
 Email: alammahtab55196@gmail.com
+
 Instagram: @theogmoon2.0
+
 YouTube:   theogmoonn
