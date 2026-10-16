@@ -9,13 +9,14 @@ I turn raw footage into engaging videos.
 - Short-form content (Reels, TikTok, YouTube)
 
 ## My Work
-- [Showreel](paste-your-link-here)
-- [Project 1](paste-your-link-here)
-- [Project 2](paste-your-link-here)
+- [Showreel](https://www.instagram.com/reel/DdvMuDGpBOM/)
+- [Project 1](https://www.instagram.com/reel/DatOiDBNgsQ/)
+- [Project 2](https://www.instagram.com/reel/DdoKzT8s_nC/)
 
 ## Tools
 Premiere Pro, After Effects, DaVinci Resolve
 
 ## Work With Me
-Email: your-email@example.com
-Instagram: @yourname
+Email: alammahtab55196@gmail.com
+Instagram: @theogmoon2.0
+YouTube:   theogmoonn
